@@ -1,5 +1,6 @@
 ---
 title: Liam Patrick
+permalink: index.html
 ---
 
 Twister of ink
