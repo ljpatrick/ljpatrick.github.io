@@ -1,6 +1,10 @@
 # Liam Patrick
-Twister of ink.
+Twister of ink
 
-Creator and curator of old symbols and new meanings.
+Creator of old symbols
 
-Living in fear.
+Curator of new meanings
+
+Living in fear
+
+Dying in peace
