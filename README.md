@@ -1,2 +1,3 @@
-# ljpatrick.github.io
-Personal webpage and portfolio
+# Liam Patrick
+Twister of ink.
+Creator and curator of old symbols and new meanings.
